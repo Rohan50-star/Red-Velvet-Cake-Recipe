@@ -1,0 +1,1 @@
+Vegetable oil, all-purpose flour, sugar, baking soda, salt, cocoa powder, buttermilk, eggs, red food coloring, white distilled vinegar, vanilla extract, cream Cheese frosting, crushed pecans.
